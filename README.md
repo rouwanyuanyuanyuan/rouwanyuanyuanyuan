@@ -1,4 +1,4 @@
-😪 A sleepy girl with her desperate (***and jog!***)  
+😪 A sleepy girl with her desperate thirst for knowledge(***and jog!***)  
 
 
 <!---
